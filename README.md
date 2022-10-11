@@ -1,2 +1,2 @@
-Hi, I'm Khushi...!
+Hi, I'm Khushi!
 (Computer Science Student)
